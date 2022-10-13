@@ -10,7 +10,11 @@ data buku ke dalam perpurstakaan tersebut
 Nama Anggota Kelompok:
 
 •	2440044070 - Jeta Adhisatya 
+
 •	2440012895 - Hansen
+
 •	2401961412 - Daniel Justine
+
 •	2401960492 - Steven Mario Ledres
+
 •	2440042954 - Briliyan Sanjaya Hartono
