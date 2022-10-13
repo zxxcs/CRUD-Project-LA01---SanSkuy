@@ -17,4 +17,4 @@ Nama Anggota Kelompok:
 
 •	2401960492 - Steven Mario Ledres
 
-•	2440042954 - Briliyan Sanjaya 
+•	2440042954 - Briliyan Sanjaya Hartono
